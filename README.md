@@ -1,0 +1,1 @@
+Tablica wydań KSeF
